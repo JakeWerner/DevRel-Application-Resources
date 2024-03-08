@@ -1,4 +1,5 @@
 I was formerly a Writer and Copy Editor for my high school paper: The Jetstream Journal.
+
 https://thejetstreamjournal.com/staff_name/jake-werner/
 
 I wrote several articles covering a wide-variety of topics including technology. My articles were frequently featured on the front page and were occasionally advretized to the school as a standard for quality.
