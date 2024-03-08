@@ -1,4 +1,4 @@
-# bytewax-application-resources
+# Jacob Werner DevRel Application Resources
 
 A compilation of resources including videos, screenshots, documents, and writings to showcase my experience with various skills for use in my Developer Advocate application.
 
